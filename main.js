@@ -1,0 +1,1 @@
+// napisz se sam kurwa
