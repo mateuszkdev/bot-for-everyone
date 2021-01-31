@@ -1,1 +1,1 @@
-// napisz se sam kurwa
+// write it by yourself, kurwa
